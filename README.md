@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @DenizToprakYildiz
-- 
 - 👀 I’m interested in ...
 - I am interested in software
 - and I deal with all kinds of other things.
